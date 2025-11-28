@@ -7,11 +7,11 @@
 
 - 🌱 I’m currently learning **C#**
 
-- 💬 Ask me about **How I'm**
+- 💬 Ask me about **"How I'm"**
 
-- 📫 How to reach me **adnansadif23@gmail.com**
+- 📫 How to reach me--> **adnansadif23@gmail.com**
 
-- ⚡ Fun fact **I live Biology and Comick .**
+- ⚡ Fun fact **I love Biology and Comick .**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
